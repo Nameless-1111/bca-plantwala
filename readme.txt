@@ -1,0 +1,1 @@
+PlantWala is a vibrant BCA college project that blends creativity with eco‑awareness. More than just a platform, it’s a green hub where users can explore plants, join events, and connect with nature. Designed to spark curiosity and inspire sustainable living, PlantWala makes greenery feel fresh, fun, and engaging.
